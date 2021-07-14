@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and makeing new project
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on anything  
-- 📫 How to reach me Daksh khosla
+- 📫 How to reach me , my linkedin Profile Daksh khosla
 
 <!---
 dakshkhosla0810/dakshkhosla0810 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
