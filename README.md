@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dakshkhosla0810
-- 👀 I’m interested in coding and makeing new project
+- 👀 I’m interested in coding and making new project
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on anything  
 - 📫 How to reach me , my linkedin Profile Daksh khosla
